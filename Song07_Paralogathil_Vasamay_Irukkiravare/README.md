@@ -1,11 +1,13 @@
-# ஆல்பம் 32 பாடல் 7
+# பரலோகத்தில் வாசமாய் இருக்கிறவரே | O You Who Dwell in the Heavens | Album 32 Song 7
+
+## ஆல்பம் 32 பாடல் 7
 பரலோகத்தில் வாசமாய் இருக்கிறவரே – சங்கீதம் 123.
 நிந்தனையில் இரங்கும்படி கர்த்தரை நோக்கி ஏறெடுத்தல். அல்லேலூயா!
 
-## Study Note
+### Study Note
 Psalm 123 is a Song of Ascents. The psalmist lifts his eyes to God in heaven and pleads for mercy amid contempt and scorn from the proud. It expresses humble dependence on God’s grace.
 
-### Prayer
+#### Prayer
 English:
 Lord Jesus, we lift our eyes to You who dwell in the heavens. Have mercy on us and deliver us from the scorn of the proud. Amen. Hallelujah!
 
